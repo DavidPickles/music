@@ -50,9 +50,7 @@
 - Album: Aqualung
 - 1971
 
-[Shine On You Crazy Diamond]
-
-Shine On You Crazy Diamond 
+[Shine On You Crazy Diamond](https://open.spotify.com/track/32dnKMni3I3gwUbWp4mi45?si=Z9N99a3jQVma6d2DHjLW6g)
 - By: Pink Floyd
 - Album: Wish You Were Here
 - 1975
