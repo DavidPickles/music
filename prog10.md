@@ -30,25 +30,27 @@
 - Album: In the Court of the Crimson King
 - 1969
 
-Shadow of the Hierophant
+[Shadow of the Hierophant](https://open.spotify.com/track/0lDHIDvwldrBLw0eOzo1Yh?si=P2PgOL96TRaPGrHjNv-INw)
 - By: Steve Hackett
 - Album: Voyage of the Accolyte
 - 1975
   
-Hurdy Gurdy Man
+[Hurdy Gurdy Man](https://open.spotify.com/track/7gtxUHQiS20UVNbJu0x0HH?si=2JllZ7TIQn2i6jcZTSw5-Q)
 - By: Steve Hillage
 - Album: L
 - 1976
   
-Roundabout
+[Roundabout](https://open.spotify.com/track/0YveezON7jpiaHA8fnUHxN?si=FZBfxYOMTyyUw0Sx2qd8WA)
 - By: Yes
 - Album: Fragile
 - 1971
   
-Aqualung
+[Aqualung](https://open.spotify.com/track/5UuikgHTxSRFRnC0zXx10i?si=RpJyMruSQMO76UakU9svnw)
 - By: Jethro Tull
 - Album: Aqualung
 - 1971
+
+[Shine On You Crazy Diamond]
 
 Shine On You Crazy Diamond 
 - By: Pink Floyd
