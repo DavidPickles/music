@@ -4,27 +4,27 @@
 
 [Spotify Playlist](https://open.spotify.com/playlist/3Bt7uarJOr161i0p8J5R1U?si=1d0c4753438a4ab2)
 
-Firth of the Fifth
+[Firth of the Fifth](https://open.spotify.com/track/5OBptQtIlGOG94la7qil6c?si=EKDZIOCRTZOJwravcNnqdw)
 - By: Genesis 
 - Album: Selling England by the Pound
 - 1973
 
-School
+[School](https://open.spotify.com/track/6fnachl7fIn5dqIjakfJ57?si=jzMjYQfuRJumnWIhOKwDVA)
 - By: Supertramp
 - Album: Crime of the Century
 - 1974
 
-Comfortably Numb
+[Comfortably Numb](https://open.spotify.com/track/7Fg4jpwpkdkGCvq1rrXnvx?si=vYlILdb9TqigeMhpFv5cVg)
 - By: Pink Floyd
 - Album: The Wall
 - 1979
   
-Can you Understand?
+[Can you Understand?](https://open.spotify.com/track/1RW9rSF4Zd2DLiBFBZrcDl?si=B_qB7aRuToaSx_O1RniWSg)
 - By: Renaissance
 - Album: Ashes are burning
 - 1973
 
-The Court of the Crimson King 
+[The Court of the Crimson King](https://open.spotify.com/track/05xYoVj6QuFk0U7PVl5Tf2?si=81AvVtyrSBmbtQp1Q-63Hw)
 - By: King Crimson
 - Album: In the Court of the Crimson King
 - 1969
