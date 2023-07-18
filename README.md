@@ -1,5 +1,5 @@
 # music
 Music Stuff
 
-[Prog 10](/prog.html)
+[Prog 10](/prog10.html)
 
