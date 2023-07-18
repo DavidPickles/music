@@ -48,7 +48,7 @@ Aqualung
 - Album: Aqualung
 - 1971
 
-Shine on you crazy diamond 
+Shine On You Crazy Diamond 
 - By: Pink Floyd
 - Album: Wish You Were Here
 - 1975
