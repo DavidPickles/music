@@ -1,8 +1,9 @@
 # 10 Prog Rock Gems
 
-![Prog collage](5741792-2.jpg)
+[The Spotify Playlist](https://open.spotify.com/playlist/3Bt7uarJOr161i0p8J5R1U?si=1d0c4753438a4ab2)
 
-[Spotify Playlist](https://open.spotify.com/playlist/3Bt7uarJOr161i0p8J5R1U?si=1d0c4753438a4ab2)
+
+![Prog collage](5741792-2.jpg)
 
 [Firth of the Fifth](https://open.spotify.com/track/5OBptQtIlGOG94la7qil6c?si=EKDZIOCRTZOJwravcNnqdw)
 - By: Genesis 
