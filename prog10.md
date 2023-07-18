@@ -11,7 +11,8 @@ Firth of the Fifth
 
 School
 - By: Supertramp
-- Album: Crime of the Century - 1974
+- Album: Crime of the Century
+- 1974
 
 Comfortably Numb
 - By: Pink Floyd
