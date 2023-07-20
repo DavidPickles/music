@@ -26,41 +26,43 @@
 - By: Pink Floyd
 - Album: [The Wall](https://open.spotify.com/album/6WaIQHxEHtZL0RZ62AuY0g?si=SHQyUJ86Tzi_V_cw_UFiNQ)
 - 1979
-- Some misguided people say Pink Floyd aren't prog. But they're wrong. I think their best albums are [Dark Side of the Moon](https://open.spotify.com/album/2WT1pbYjLJciAR26yMebkH?si=_Yus99bOTlGKw8jyXpLTBQ) and [Wish You Were Here](https://open.spotify.com/album/6uvBKDGlJAYLH5Vy6RQVsc?si=nUzenwV0RiuO4FeWXXGGIw), and it's good to listen to them as a whole. This song isn't on either, but stands alone.
+- Some misguided people say Pink Floyd aren't prog. But they're wrong. I think their best albums are [Dark Side of the Moon](https://open.spotify.com/album/2WT1pbYjLJciAR26yMebkH?si=_Yus99bOTlGKw8jyXpLTBQ) and [Wish You Were Here](https://open.spotify.com/album/6uvBKDGlJAYLH5Vy6RQVsc?si=nUzenwV0RiuO4FeWXXGGIw), and it's good to listen to them as a whole. This song isn't on either, and stands well alone.
   
-[Can you Understand?]
+[Can you Understand?](https://en.m.wikipedia.org/wiki/Ashes_Are_Burning)
 - By: Renaissance
-- Album: [Ashes are Burning](https://en.m.wikipedia.org/wiki/Ashes_Are_Burning)
+- Album: [Ashes are Burning](https://open.spotify.com/album/1C2fgiQmiTF9Dr8NdbPSou?si=k3ahI5-iR-qiSpWF7gSWXQ)
 - 1973
-- An unconventional choice this. But I've been enjoying it a lot recently, and it's my list so there you are.
+- An unconventional choice. But I've been enjoying it a lot recently, and it's my list so there you are.
 
 [Bohemian Rhapsody](https://en.m.wikipedia.org/wiki/Bohemian_Rhapsody)
 - By: Queen
-- Album: A Night at the Opera
+- Album: [A Night at the Opera](https://open.spotify.com/album/1GbtB4zTqAsyfZEsm1RZfx?si=e87ab95ca9fd4961)
 - 1975
-- Including this in a prog list would upset some people, but I can't think of any reason not to, other than that it's very popular.
+- Including this in a prog list would upset some people, but I can't think of no reason not to.
 
 [The Court of the Crimson King](https://en.m.wikipedia.org/wiki/The_Court_of_the_Crimson_King)
 - By: King Crimson
-- Album: In the Court of the Crimson King
+- Album: [In the Court of the Crimson King](https://open.spotify.com/album/6tVg2Wl9hVKMpHYcAl2V2M?si=b074fb287def4474)
 - 1969
-- At least one track from this album has to be included on every prog top 10, by law.
+- At least one track from this album has to be included on every prog top 10. That's the law.
 
-[Shadow of the Hierophant]()
+[Shadow of the Hierophant](https://en.wikipedia.org/wiki/Voyage_of_the_Acolyte)
 - By: Steve Hackett
-- Album: Voyage of the Accolyte
+- Album: [Voyage of the Accolyte](https://open.spotify.com/album/4twSmtePdvfZhSpI2LV5W2?si=44391c3a23504e89)
 - 1975
-- A very unconventional choice. But I think it's a classic.
+- Another unconventional choice, but I think it's a classic. The album I'm less keen on. 
 
-[Roundabout]()
+[Roundabout](https://en.wikipedia.org/wiki/Roundabout_(Yes_song))
 - By: Yes
-- Album: Fragile
+- Album: [Fragile](https://open.spotify.com/album/0dZF93WHyOhTWjz5EWM7yG?si=fcba58f65d154fe3)
 - 1971
+- On every list of prog classics, with good reason.
   
-[Aqualung]()
+[Aqualung](https://en.wikipedia.org/wiki/Aqualung_(album))
 - By: Jethro Tull
-- Album: Aqualung
+- Album: [Aqualung](https://open.spotify.com/album/0NGM3Ftwjw0dLNpAowmz3x?si=932d8cb932904f01)
 - 1971
+  I wanted to include a Jethro Tull track. There may be others that fans would recommomend over this song, but it is one that I know well, so that's why it's here.
 
 Other lists:
 - [Top 10 Prog Albums](https://www.youtube.com/watch?v=I4_YMKQUSqI)
