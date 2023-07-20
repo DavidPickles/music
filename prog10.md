@@ -6,27 +6,27 @@
 
 [Firth of Fifth](https://en.m.wikipedia.org/wiki/Firth_of_Fifth)
 - By: Genesis 
-- Album: Selling England by the Pound
+- Album: [Selling England by the Pound](https://open.spotify.com/album/2tSRe2rkdJvZWMOIZpu6lk?si=MFdDDbFWTFaqseHHdhwR3Q)
 - 1973
 - On pretty much anyone's prog top 10, and definitely one of my favourites.
 
 [Stairway to Heaven](https://en.m.wikipedia.org/wiki/Stairway_to_Heaven)
 - By: Led Zeppelin
-- Album: Led Zeppelin IV
+- Album: [Led Zeppelin IV](https://open.spotify.com/album/44Ig8dzqOkvkGDzaUof9lK?si=Lpu0eA1LT2KFeQFfWsgkpQ)
 - 1971
 - Not everyone would count this as prog. But it's started appearing on prog lists, and I'm happy to be inclusive because it's a great song.
   
 [School](https://en.m.wikipedia.org/wiki/School_(Supertramp_song)
 - By: Supertramp
-- Album: Crime of the Century
+- Album: [Crime of the Century](https://open.spotify.com/album/2wrHaulTgqqkVKx0k7Kq4r?si=9EXW5RLOTr23yDNPo5qWvQ)
 - 1974
-- Not a conventional choice this, but I wanted Supertramp on the list, and I like this song more than some of the more obvious choices.
+- Not a conventional choice, but I wanted Supertramp on the list, and I like this song more than the more obvious ones.
 
 [Comfortably Numb](https://en.m.wikipedia.org/wiki/Comfortably_Numb)
 - By: Pink Floyd
-- Album: The Wall
+- Album: [The Wall](https://open.spotify.com/album/6WaIQHxEHtZL0RZ62AuY0g?si=SHQyUJ86Tzi_V_cw_UFiNQ)
 - 1979
-- Some misguided people say Pink Floyd aren't prog. But they're wrong. I think their best albums are [Dark Side of the Moon]() and [Wish You Were Here](), and it's good to listen to them as a whole. This song isn't on either, but stands alone.
+- Some misguided people say Pink Floyd aren't prog. But they're wrong. I think their best albums are [Dark Side of the Moon](https://open.spotify.com/album/2WT1pbYjLJciAR26yMebkH?si=_Yus99bOTlGKw8jyXpLTBQ) and [Wish You Were Here](https://open.spotify.com/album/6uvBKDGlJAYLH5Vy6RQVsc?si=nUzenwV0RiuO4FeWXXGGIw), and it's good to listen to them as a whole. This song isn't on either, but stands alone.
   
 [Can you Understand?]
 - By: Renaissance
