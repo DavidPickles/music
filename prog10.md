@@ -28,9 +28,9 @@
 - 1979
 - Some misguided people say Pink Floyd aren't prog. But they're wrong. I think their best albums are [Dark Side of the Moon]() and [Wish You Were Here](), and it's good to listen to them as a whole. This song isn't on either, but stands alone.
   
-[Can you Understand?](https://en.m.wikipedia.org/wiki/Ashes_Are_Burning)
+[Can you Understand?]
 - By: Renaissance
-- Album: Ashes are burning
+- Album: [Ashes are Burning](https://en.m.wikipedia.org/wiki/Ashes_Are_Burning)
 - 1973
 - An unconventional choice this. But I've been enjoying it a lot recently, and it's my list so there you are.
 
