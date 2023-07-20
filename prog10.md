@@ -8,7 +8,7 @@
 - By: Genesis 
 - Album: [Selling England by the Pound](https://open.spotify.com/album/2tSRe2rkdJvZWMOIZpu6lk?si=MFdDDbFWTFaqseHHdhwR3Q)
 - 1973
-- On pretty much anyone's prog top 10, and definitely one of my favourites. Check-out the Album [Foxtrot](https://open.spotify.com/album/1P9AuGH530Oy9JEW5XVuxo?si=5ry6sHGKRzydouJ_XUi_7A) as well. 
+- On pretty much anyone's prog top 10, and definitely one of my favourites. Check out the Album [Foxtrot](https://open.spotify.com/album/1P9AuGH530Oy9JEW5XVuxo?si=5ry6sHGKRzydouJ_XUi_7A) as well. 
 
 [Stairway to Heaven](https://en.m.wikipedia.org/wiki/Stairway_to_Heaven)
 - By: Led Zeppelin
