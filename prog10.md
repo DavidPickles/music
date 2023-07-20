@@ -38,7 +38,7 @@
 - By: Queen
 - Album: [A Night at the Opera](https://open.spotify.com/album/1GbtB4zTqAsyfZEsm1RZfx?si=e87ab95ca9fd4961)
 - 1975
-- Including this in a prog list would upset some people, but I can't think of no reason not to.
+- Including this in a prog list would upset some people, but I can't think of any reason not to.
 
 [The Court of the Crimson King](https://en.m.wikipedia.org/wiki/The_Court_of_the_Crimson_King)
 - By: King Crimson
