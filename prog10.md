@@ -2,13 +2,17 @@
 
 [The Spotify Playlist](https://open.spotify.com/playlist/3Bt7uarJOr161i0p8J5R1U?si=1d0c4753438a4ab2)
 
-
 ![Prog collage](5741792-2.jpg)
 
 [Firth of the Fifth](https://open.spotify.com/track/5OBptQtIlGOG94la7qil6c?si=EKDZIOCRTZOJwravcNnqdw)
 - By: Genesis 
 - Album: Selling England by the Pound
 - 1973
+
+[Stairway to Heaven](https://open.spotify.com/track/5CQ30WqJwcep0pYcV4AMNc?si=a5c949968903432e)
+- By: Led Zeppelin
+- Album: Led Zeppelin IV
+- 1971
 
 [School](https://open.spotify.com/track/6fnachl7fIn5dqIjakfJ57?si=jzMjYQfuRJumnWIhOKwDVA)
 - By: Supertramp
@@ -25,6 +29,11 @@
 - Album: Ashes are burning
 - 1973
 
+[Bohemian Rhapsody](https://open.spotify.com/track/3z8h0TU7ReDPLIbEnYhWZb?si=2988c676f6284260)
+- By: Queen
+- Album: A Night at the Opera
+- 1975
+
 [The Court of the Crimson King](https://open.spotify.com/track/05xYoVj6QuFk0U7PVl5Tf2?si=81AvVtyrSBmbtQp1Q-63Hw)
 - By: King Crimson
 - Album: In the Court of the Crimson King
@@ -34,12 +43,7 @@
 - By: Steve Hackett
 - Album: Voyage of the Accolyte
 - 1975
-  
-[Hurdy Gurdy Man](https://open.spotify.com/track/7gtxUHQiS20UVNbJu0x0HH?si=2JllZ7TIQn2i6jcZTSw5-Q)
-- By: Steve Hillage
-- Album: L
-- 1976
-  
+
 [Roundabout](https://open.spotify.com/track/0YveezON7jpiaHA8fnUHxN?si=FZBfxYOMTyyUw0Sx2qd8WA)
 - By: Yes
 - Album: Fragile
@@ -50,7 +54,6 @@
 - Album: Aqualung
 - 1971
 
-[Shine On You Crazy Diamond](https://open.spotify.com/track/32dnKMni3I3gwUbWp4mi45?si=Z9N99a3jQVma6d2DHjLW6g)
-- By: Pink Floyd
-- Album: Wish You Were Here
-- 1975
+Other lists:
+- [Top 10 Prog Albums](https://www.youtube.com/watch?v=I4_YMKQUSqI)
+- [Top 10 Prog Songs](https://www.youtube.com/watch?v=TMDgU-DLxB8)
