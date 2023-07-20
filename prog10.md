@@ -16,7 +16,7 @@
 - 1971
 - Not everyone would count this as prog. But it's started appearing on prog lists, and I'm happy to be inclusive because it's a great song.
   
-[School](https://en.m.wikipedia.org/wiki/School_\(Supertramp_song)
+[School](https://en.m.wikipedia.org/wiki/School_%28Supertramp_song%29)
 - By: Supertramp
 - Album: [Crime of the Century](https://open.spotify.com/album/2wrHaulTgqqkVKx0k7Kq4r?si=9EXW5RLOTr23yDNPo5qWvQ)
 - 1974
