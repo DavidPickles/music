@@ -62,7 +62,7 @@
 - By: Jethro Tull
 - Album: [Aqualung](https://open.spotify.com/album/0NGM3Ftwjw0dLNpAowmz3x?si=932d8cb932904f01)
 - 1971
-  I wanted to include a Jethro Tull track. There may be others that fans would recommomend over this song, but it is one that I know well, so that's why it's here.
+- I wanted to include a Jethro Tull track. There may be others that fans would recommomend over this song, but it is one that I know well, so that's why it's here.
 
 Other lists:
 - [Top 10 Prog Albums](https://www.youtube.com/watch?v=I4_YMKQUSqI)
