@@ -22,30 +22,35 @@
 - 1974
 - Not a conventional choice this, but I wanted Supertramp on the list, and I like this song more than some of the more obvious choices.
 
-[Comfortably Numb]()
+[Comfortably Numb](https://en.m.wikipedia.org/wiki/Comfortably_Numb)
 - By: Pink Floyd
 - Album: The Wall
 - 1979
+- Some misguided people say Pink Floyd aren't prog. But they're wrong. I think their best albums are [Dark Side of the Moon]() and [Wish You Were Here](), and it's good to listen to them as a whole. This song isn't on either, but stands alone.
   
-[Can you Understand?]()
+[Can you Understand?](https://en.m.wikipedia.org/wiki/Ashes_Are_Burning)
 - By: Renaissance
 - Album: Ashes are burning
 - 1973
+- An unconventional choice this. But I've been enjoying it a lot recently, and it's my list so there you are.
 
-[Bohemian Rhapsody]()
+[Bohemian Rhapsody](https://en.m.wikipedia.org/wiki/Bohemian_Rhapsody)
 - By: Queen
 - Album: A Night at the Opera
 - 1975
+- Including this in a prog list would upset some people, but I can't think of any reason not to, other than that it's very popular.
 
-[The Court of the Crimson King]()
+[The Court of the Crimson King](https://en.m.wikipedia.org/wiki/The_Court_of_the_Crimson_King)
 - By: King Crimson
 - Album: In the Court of the Crimson King
 - 1969
+- At least one track from this album has to be included on every prog top 10, by law.
 
 [Shadow of the Hierophant]()
 - By: Steve Hackett
 - Album: Voyage of the Accolyte
 - 1975
+- A very unconventional choice. But I think it's a classic.
 
 [Roundabout]()
 - By: Yes
